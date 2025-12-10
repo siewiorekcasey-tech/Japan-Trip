@@ -1,0 +1,2 @@
+# Japan-Trip
+Visiting Japan
